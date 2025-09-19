@@ -11,7 +11,7 @@ Everything you need to create your website
 - ~25,000 Visits Monthly  
 - 25 GB SSD Storage  
 - 400,000 Files & Directories (Inodes)  
-👉 [Get Premium Web Hosting – Up to 80% OFF](SHORT_LINK1)  
+👉 [Get Premium Web Hosting – Up to 80% OFF](https://cutt.ly/7rBxEDn6)
 
 ---
 
